@@ -8,7 +8,11 @@ Art curriculum, based on this [post](https://www.reddit.com/r/learnart/comments/
 
 [] [🆓 Proko](https://www.youtube.com/playlist?list=PLR2KBLDDnZz3Ec8LZ66IDS--P9g3TdwOM)
 
-[] Challenge: 30 days of gesture sessions. [New Masters Academy] (https://www.youtube.com/playlist?list=PL7EWYwaF6E-Exv72kVT4yYJM2lX-Xf66I) or [draw this](https://www.youtube.com/channel/UCOVNvkn-f6BW18AvplWI8YA) or 
+[] [🆓 Beginner Gesture Drawing Step by Step](https://www.youtube.com/playlist?list=PLXkHosWORUv7upSk7NWEqK3fe5gkek9Zl)
+
+[] Challenge: 30 days of gesture sessions: [🆓 New Masters Academy](https://www.youtube.com/playlist?list=PL7EWYwaF6E-Exv72kVT4yYJM2lX-Xf66I) 
+or [🆓 Draw This](https://www.youtube.com/channel/UCOVNvkn-f6BW18AvplWI8YA) 
+
 
 ## Perspective 1
 
