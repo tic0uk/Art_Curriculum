@@ -10,7 +10,10 @@ Art curriculum, based on this [post](https://www.reddit.com/r/learnart/comments/
 
 Book: Andrew Lomis "Figure drawing for all it's worth"
 
-[] Challenge: 30 days of gesture sessions. [New Masters Academy] (https://www.youtube.com/playlist?list=PL7EWYwaF6E-Exv72kVT4yYJM2lX-Xf66I) or [draw this](https://www.youtube.com/channel/UCOVNvkn-f6BW18AvplWI8YA) or 
+Challenge: 30 days of gesture sessions. Either:
+[] [🆓 New Masters Academy](https://www.youtube.com/playlist?list=PL7EWYwaF6E-Exv72kVT4yYJM2lX-Xf66I) 
+or 
+[] [🆓 draw this](https://www.youtube.com/channel/UCOVNvkn-f6BW18AvplWI8YA)
 
 ## Perspective 1
 
